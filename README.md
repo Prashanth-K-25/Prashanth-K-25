@@ -1,4 +1,4 @@
-# 👋 Hey there, I'm Prashanth-K! 🚀 
+# 👋 Hey there, I'm Prashanth! 🚀 
 ## [About me!](https://prashanth-dev.vercel.app/)
 
 ## 👀 What I'm Into
